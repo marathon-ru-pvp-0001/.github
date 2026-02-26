@@ -8,7 +8,7 @@
 
 **Телеграм канал с новостями: [Жми для перехода в телеграм](https://t.me/marathonsng)**
 
-![screenshot](https://i.postimg.cc/sDx8SzZ7/i-\(8\).webp)
+![screenshot](https://images.contentstack.io/v3/assets/blte410e3b15535c144/blt45e51c8fa035692f/693b6385e59b0a022fa749ff/Marathon_Reprisal_Header_Front_Page_Banner_PC.jpg)
 
 ---
 
